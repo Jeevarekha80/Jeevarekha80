@@ -32,7 +32,7 @@ Welcome to my GitHub profile! I'm someone who loves crafting digital experiences
 
 ### 🔗 Let's Connect
 - 📌**Linkedin**: [https://www.linkedin.com/in/jeevarekha-k-54524a298/]
--  ✉️ **Email**: jeevarekhak2006@gmail.com *
+-  ✉️ **Email**: jeevarekhak2006@gmail.com 
 
 💬 I’m always open to collaboration and exciting new projects!
 
