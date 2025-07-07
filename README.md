@@ -13,7 +13,7 @@ Welcome to my GitHub profile! I'm someone who loves crafting digital experiences
 - 💡 Love learning new technologies, solving real-world problems, and exploring creative ideas
 - 🤝 I enjoy collaborating, joining tech communities, and participating in hackathons
 - 🚀 Growth mindset: always ready to learn, build, improve, and innovate
-- ✉️ Reach me at: **jeevarekhak5@gmail.com**
+- ✉️ Reach me at: **jeevarekhak2006@gmail.com**
 
 ---
 
@@ -32,7 +32,7 @@ Welcome to my GitHub profile! I'm someone who loves crafting digital experiences
 
 ### 🔗 Let's Connect
 - 📌**Linkedin**: [https://www.linkedin.com/in/jeevarekha-k-54524a298/]
--  ✉️ **Email**: jeevarekhak5@gmail.com *
+-  ✉️ **Email**: jeevarekhak2006@gmail.com *
 
 💬 I’m always open to collaboration and exciting new projects!
 
